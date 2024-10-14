@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gwasilwa
 - 👀 I’m interested in contributing to open source project
-- 🌱 I’m currently learning how to draw potraits
+- 🌱 I’m currently learning how to play guitar
 - 💞️ I’m looking to collaborate on ... TBD
 - 📫 How to reach me ... --
 
